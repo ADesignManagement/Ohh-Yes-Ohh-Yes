@@ -1,3 +1,3 @@
 # Ohh-Yes-Ohh-Yes
 ...
-Ohh Yes Ohh yes x 28 Manito
+Ohh Yes Ohh yes x 26 Manito
